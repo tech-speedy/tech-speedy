@@ -1,7 +1,7 @@
 ## Hi, I'm Arnab ✨
 
 🧠 Computer Science student at Brainware University<br/>
-💻 I love coding and playing some online video games<br/>
+💻 I love coding and playing online video games<br/>
 🤳 You can connect me on [Instagram][https://www.instagram.com/classyy.arnab/]
 
 
