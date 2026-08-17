@@ -2,7 +2,7 @@
 
 🧠 Computer Science student at Brainware University<br/>
 💻 I love coding and playing online video games<br/>
-🤳 You can connect me on [Instagram][https://www.instagram.com/itxx__arnab/]
+🤳 You can connect me on [Instagram][https://www.instagram.com/areyouarnab/]
 
 
 ## 🌐 Socials:
